@@ -1,1 +1,0 @@
-# canerakin.github.io
